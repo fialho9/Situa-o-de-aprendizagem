@@ -1,1 +1,0 @@
-# Situa-o-de-aprendizagem
